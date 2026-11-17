@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Nisha Verma!
+# 👋 Hi, I'm Nisha Varma!
 
 ### 💜 Banking Operations Professional | Aspiring Data Analyst
 
